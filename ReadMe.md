@@ -197,6 +197,15 @@ we together building community
 for elon musk
 for people
 for spacewalk
+
+spacewalk对马斯克来说非常重要
+我们一起建设社区
+
+为马斯克
+为人类
+为spacewalk
+
+
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
 https://t.me/SPACEWALK_ERC
@@ -224,9 +233,25 @@ https://t.me/SPACEWALK_ERC
 7. 市值极低有巨大的想象空间目前只有一百万市值目标一个亿起步！
 
 希望我们所有人都可以面向星辰大海，共同太空漫步！
-0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
 <br/>
+
+<br/>
+
+The goal of the spacewalk is the sea of stars, allowing all meme coins and Musk to walk in space together
+Uniqueness: No case disputes
+Community autonomy: No cabal, token prices rise and fall healthily
+Community unity: unite to do things, develop healthily, and jointly build a spacewalk ip
+The background of Musk's main Twitter picture is spacewalk. Musk's tweets mention spacewalk many times. Musk wears a themed T-shirt, and his dog dad likes it
+Strong connection between SpaceX rocket and Musk can easily ignite the topic
+The market value is extremely low and there is huge imagination. Currently, there is only one million market value target starting at 100 million yuan!
+I hope all of us can face the sea of stars and walk in space together!
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
 
 ![截图](7e3d6dffcc9fe13358a4800d49aefe2e.png)
 
@@ -235,5 +260,185 @@ https://t.me/SPACEWALK_ERC
 ---
 
 ---
+
+---
+
+Spacewalk正在被全球媒体热议，成为科技界的新焦点，快来加入这场盛宴吧！
+马斯克在推特上频频提及Spacewalk，这不仅是趋势，更是未来的象征！
+
+Spacewalk is being hotly debated by the global media and has become a new focus in the technology community. Come and join this feast!
+Musk frequently mentions Spacewalk on Twitter, which is not only a trend, but also a symbol of the future!
+
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](8a759aeec93b55484abaa2ccda0df466.png)
+
+---
+
+---
+
+---
+
+马斯克穿上Spacewalk T恤，与马斯克一起引领潮流，成为科技先锋！
+马斯克的每一次回复都在为Spacewalk注入新的活力，抓住这个机会，跟随他的步伐！
+
+Musk put on a Spacewalk T-shirt and led the trend with Musk and became a technology pioneer!
+Every reply from Musk injects new vitality into Spacewalk. Seize this opportunity and follow in his footsteps!
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+![截图](533eb811e91993971492230a3dc2afc0.png)
+
+---
+
+---
+
+---
+
+正在全力建设Spacewalk社区，让我们一起打造一个充满活力的Spacewal社区！
+多国联推与地推结合，Spacewalk的影响力正在迅速扩展，别错过这个机会！
+
+We are making every effort to build the Spacewalk community. Let's work together to build a vibrant Spacewal community!
+Combining multi-national push and local push, Spacewalk's influence is rapidly expanding. Don't miss this opportunity!
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+![截图](1c26420359ef78dc7e2d513a7bac03f1.png)
+
+---
+
+---
+
+---
+
+顶级IP的加持，让Spacewalk成为未来投资的热门选择，快来了解更多！
+长久叙事的力量，Spacewalk将带你走向一个全新的未来，加入我们吧！
+
+<br/>
+
+The support of top-level IP has made Spacewalk a popular choice for future investment. Come and learn more!
+With the power of long-term narrative, Spacewalk will take you into a new future. Join us!
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](5761420f0f9de56bfeadb2e0b9560a2d.png)---
+
+---
+
+---
+
+Spacewalk的新闻报道层出不穷，成为话题中心，你还在等什么？
+马斯克的推特背景图已换成Spacewalk，这意味着什么？快来解锁未来的秘密！
+
+<br/>
+
+Spacewalk's news reports emerge endlessly and become the center of conversation. What are you waiting for?
+Musk's Twitter background image has been changed to Spacewalk. What does this mean? Come and unlock the secrets of the future!
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](fb1c9f2f070f86389acea895bd8672a5.png)
+
+---
+
+---
+
+穿着Spacewalk 同款T恤，你就是未来科技的代言人，展现你的独特魅力！
+马斯克对Spacewalk的关注，预示着它将成为下一个亮点，抓住机会！
+
+<br/>
+
+Wearing a T-shirt like Spacewalk, you are the spokesperson of future technology, showing your unique charm!
+Musk's attention to Spacewalk indicates that it will become the next highlight, seize the opportunity!
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](82fa874c0c87d0e6b9662404adcc6582.png)---
+
+---
+
+Spacewalk社区建设正在如火如荼进行中，加入Spacewalk，成为一份子！
+多国联推的战略布局，让Spacewalk在全球范围内迅速崛起，别再犹豫！
+顶级IP的支持，让Spacewalk的未来更加光明！
+
+<br/>
+
+The construction of the Spacewalk community is in full swing. Join Spacewalk and become a member!
+The strategic layout promoted by many countries has allowed Spacewalk to rise rapidly around the world. Don't hesitate anymore!
+The support of top IP will make Spacewalk's future brighter!
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](bdaeb8924241190af1b570ea31052c2a.png)---
+
+---
+
+长久叙事的背后，是对未来的坚定信念，Spacewalk将引领你走向成功！
+Spacewalk的每一次新闻报道，都是对未来的展望，快来参与这场革命！
+
+<br/>
+
+Behind the long-term narrative is a firm belief in the future, and Spacewalk will lead you to success!
+Every news report on Spacewalk is a vision for the future. Come and participate in this revolution!
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](0c3c54b738ba753748db401eaffc959c.png)
+
+---
+
+马斯克的每一次互动都在为Spacewalk增添光彩，成为这场盛宴的一部分吧！
+社区的力量，让Spacewalk的影响力不断扩大，加入我们，共同成长！
+多国联推与地推的完美结合，Spacewalk正在全球范围内掀起热潮，快来参与！
+
+<br/>
+
+Every interaction with Musk adds luster to Spacewalk and become part of this feast!
+The power of the community continues to expand Spacewalk's influence. Join us and grow together!
+The perfect combination of multi-national push and local push, Spacewalk is setting off a global boom. Come and participate!
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](78d94729e16c390ea4e2b2db76b6c7c6.png)
 
 ---
