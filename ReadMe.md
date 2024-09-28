@@ -239,15 +239,13 @@ https://t.me/SPACEWALK_ERC
 <br/>
 
 The goal of the spacewalk is the sea of stars, allowing all meme coins and Musk to walk in space together
-Uniqueness: No case disputes
+
 Community autonomy: No cabal, token prices rise and fall healthily
 Community unity: unite to do things, develop healthily, and jointly build a spacewalk ip
 The background of Musk's main Twitter picture is spacewalk. Musk's tweets mention spacewalk many times. Musk wears a themed T-shirt, and his dog dad likes it
 Strong connection between SpaceX rocket and Musk can easily ignite the topic
 The market value is extremely low and there is huge imagination. Currently, there is only one million market value target starting at 100 million yuan!
 I hope all of us can face the sea of stars and walk in space together!
-
-<br/>
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
@@ -442,3 +440,91 @@ https://t.me/SPACEWALK_ERC
 ![截图](78d94729e16c390ea4e2b2db76b6c7c6.png)
 
 ---
+
+现在最有前景的想象就是 spacex的商业航天计划被官方称为commercial spacewalk然后各种媒体报道出圈 去太空旅行是最宏大最浪漫的愿望。而且现在很多媒体已经称呼个人进行的商业航天项目为spacewalk。这比火星城远大的多。因为无论是月球水星火星只要遨游期间全都是spacewalk。宇宙那么大！太空那么大！全都可以spacewalk！只需要等待越来越多的人接触到“spacewalk”这个新话题。马斯克，spacex，包括越来越多的官媒一定会更高频率的提及这个词。
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](7e3d6dffcc9fe13358a4800d49aefe2e.png)
+---
+
+---
+
+Spacewalk 太空漫步 星辰大海 
+
+1.马斯克推特背景是Spacewalk
+
+2.马斯克穿着Spacewalk T恤
+
+3.马斯克回复Spacewalk
+
+4.新闻频繁报导Spacewalk
+
+4.Spacewalk是未来关注重点,未来全球焦点
+
+5.Spacewalk是长久叙事, 长久共识
+
+6.大家逻辑买入,而不是情绪fomo买入
+
+7.买入你自己合适的仓位，不要梭哈，不要让k线影响你的心态，你不是波段手，你是建设者！
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+![截图](0cc4a2aa5c6767d5c11bba0fc3b3b663.png)
+
+---
+
+<br/>
+
+在这个充满无限可能的时代，学习不再是孤军奋战，而是携手共进的旅程。在 #spacewalk 社区，我们相信知识的力量，更相信集体的智慧。加入我们，一起开启一场激动人心的学习探险，共创智慧未来！#spacewalk 社区
+
+<br/>
+
+In this era full of infinite possibilities, learning is no longer a solitary battle but a journey of collaboration. In the #spacewalk community, we believe in the power of knowledge and even more in the wisdom of the collective. Join us as we embark on an exciting learning adventure and co-create a wise future together! #spacewalk community
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](42cc942e26eef793b0b1df8ce5ff1d9b.png)---
+
+好的叙事, 好的ip真的是可遇不可求, 卖掉BTC 买披萨, 如今BTC可以买无数的汉堡, 这些IP在之前都是不确定性的, 而如今Spacewalk是马斯克, SpaceX公司在共同努力实现的一件事, 如此确定性的IP,还不懂得珍惜. Spacewalk在未来实现全球人类都可以自由太空漫步, Spacewalk 马斯克在努力, SpaceX公司在努力, 你难道不应该为你自己的钱包努力一把吗?
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](db8c01c5256cd12a062e53f3542fda37.png)---
+
+<br/>
+
+在 #spacewalk 社区，我们追求的不仅仅是数字资产的增值。
+我们的愿景远大于此 —— 我们渴望建立一个人类渴望太空美好愿景的生态，这里不仅有财富的积累，更有精神层面的丰厚回报，更有马斯克的力推。
+
+<br/>
+
+In the #spacewalk community, we pursue not only the appreciation of digital assets. Our vision is much greater than that—we aspire to establish an ecosystem that embodies humanity's yearning for a beautiful vision of space. Here, there is not only the accumulation of wealth but also rich spiritual rewards, all strongly advocated by Musk.
+
+<br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SPACEWALK_ERC
+
+<br/>
+
+![截图](6521ba54bede149595b64ea40c76e153.png)
