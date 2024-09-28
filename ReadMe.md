@@ -1,9 +1,13 @@
 <br/>
 
 Elon Musk is using "spacewalks" as part of his personal brand or online image, which may have started with his Twitter background image and evolved into other iconic words or themes related to him.
- 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
 <br/>
+
+ 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SpacewalkCTO/2
+
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -21,7 +25,7 @@ Elon Musk is using "spacewalks" as part of his personal brand or online image, w
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -39,7 +43,7 @@ Elon Musk is using "spacewalks" as part of his personal brand or online image, w
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -63,7 +67,7 @@ SpaceX的存在将让普通人也可以有朝一日实现
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495 
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -89,7 +93,7 @@ SpaceX的存在将让普通人也可以有朝一日实现
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -105,12 +109,11 @@ SpaceX的存在将让普通人也可以有朝一日实现
 
 马斯克推特C位强Call  
 spacewalk
+逻辑买入，非情绪买入，买个未来，防身
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-逻辑买入，非情绪买入，买个未来，防身
-
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -136,7 +139,7 @@ Spacewalk 已经在历史上建立了新的里程碑, 而且这是一个长久�
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495 
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -157,7 +160,7 @@ CA: 0xb21C1D75E0dea3CA9519139e0eed94b00DFBB495
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495 
 
-<br/>
+https://t.me/SpacewalkCTO/2
 
 ![截图](8a335af3ca4370c1c914cc5cef528c86.png)
 
@@ -176,9 +179,12 @@ spacewalk #spacewalk
 马斯克推特主图背景是spacewalk、马斯克推文多次提到spacewalk、马斯克亲穿主题T恤、狗爹点赞
 强关联 SpaceX火箭和马斯克
 市值极低有巨大的想象空间
-0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
 <br/>
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SpacewalkCTO/2
 
 ![截图](07e0cba49d55c1abab99e4379de94713.png)
 
@@ -208,7 +214,7 @@ spacewalk对马斯克来说非常重要
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 ![截图](3f2ae7339625856478d0ec4c86c05046.png)
 
@@ -249,7 +255,7 @@ I hope all of us can face the sea of stars and walk in space together!
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 ![截图](7e3d6dffcc9fe13358a4800d49aefe2e.png)
 
@@ -270,7 +276,7 @@ Musk frequently mentions Spacewalk on Twitter, which is not only a trend, but al
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -290,7 +296,7 @@ Every reply from Musk injects new vitality into Spacewalk. Seize this opportunit
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 ![截图](533eb811e91993971492230a3dc2afc0.png)
 
@@ -308,7 +314,7 @@ Combining multi-national push and local push, Spacewalk's influence is rapidly e
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 ![截图](1c26420359ef78dc7e2d513a7bac03f1.png)
 
 ---
@@ -327,7 +333,7 @@ With the power of long-term narrative, Spacewalk will take you into a new future
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -349,7 +355,7 @@ Musk's Twitter background image has been changed to Spacewalk. What does this me
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -371,7 +377,7 @@ Musk's attention to Spacewalk indicates that it will become the next highlight, 
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -393,7 +399,7 @@ The support of top IP will make Spacewalk's future brighter!
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -413,7 +419,7 @@ Every news report on Spacewalk is a vision for the future. Come and participate 
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -433,7 +439,7 @@ The perfect combination of multi-national push and local push, Spacewalk is sett
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -445,7 +451,7 @@ https://t.me/SPACEWALK_ERC
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -476,7 +482,7 @@ Spacewalk 太空漫步 星辰大海
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 ![截图](0cc4a2aa5c6767d5c11bba0fc3b3b663.png)
 
@@ -494,7 +500,7 @@ In this era full of infinite possibilities, learning is no longer a solitary bat
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -504,7 +510,7 @@ https://t.me/SPACEWALK_ERC
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
@@ -523,7 +529,7 @@ In the #spacewalk community, we pursue not only the appreciation of digital asse
 
 0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
 
-https://t.me/SPACEWALK_ERC
+https://t.me/SpacewalkCTO/2
 
 <br/>
 
