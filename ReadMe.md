@@ -533,4 +533,39 @@ https://t.me/SpacewalkCTO/2
 
 <br/>
 
-![截图](6521ba54bede149595b64ea40c76e153.png)
+![03ab4f0b3642bc95690560e4787bd4d.jpg](446e8dd336a223138cf4dbc5edf1e9c9.jpg)
+
+<br/>
+
+---
+
+Elon Musk 发推喊 spacewalk，同时将个人推特主页背景图改成 spacewalk 图片。
+这么牛逼的IP目前还没有被大资金发现，后续Elon Musk 绝对还会喊 spacewalk。
+现在埋伏起来，按兵不动，是最好的选择。
+
+0xb21c1d75e0dea3ca9519139e0eed94b00dfbb495
+
+https://t.me/SpacewalkCTO/2
+
+<br/>
+
+![03ab4f0b3642bc95690560e4787bd4d.jpg](446e8dd336a223138cf4dbc5edf1e9c9.jpg)
+
+<br/>
+
+---
+
+<br/>
+
+Dear Elon Musk , will you one day go into space in person and take a spacewalk?
+![03ab4f0b3642bc95690560e4787bd4d.jpg](446e8dd336a223138cf4dbc5edf1e9c9.jpg)
+
+<br/>
+
+---
+
+<br/>
+
+Dear Elon Musk with your passion for space travel, I'm surprised you haven't gone up yet to the Space Station or spacewalk?
+
+![03ab4f0b3642bc95690560e4787bd4d.jpg](446e8dd336a223138cf4dbc5edf1e9c9.jpg)
